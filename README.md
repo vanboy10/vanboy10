@@ -1,9 +1,8 @@
 #  Hi, I’m vanboy😎
 
-#  I’m interested in Advance Artificial Intelligence💢
+## Selamat datang di repositori saya😶‍🌫️ !
 
-#   I’m currently learning Advance Artificial Intelligence - IBM Academy🤖
+## Saya adalah pelajar Advance Artificial Intelligence - IBM Academy di Infinite Learning💢 .
 
-#  Fun fact: comedy😂
+## Thank you for visiting  Let's connect and collaborate⭐ !
 
-# Let's connect and collaborate⭐
