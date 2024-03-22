@@ -1,6 +1,12 @@
-### - 👋 Hi, I’m vanboy10
-### - 👀 I’m interested in Advance Artificial Intelligence
-### - 🌱 I’m currently learning Advance Artificial Intelligence - IBM Academy
-### - ⚡ Fun fact: Comedi
+# - 👋  Hi, I’m vanboy
 
-### Mari terhubung dan berkolaborasi⭐
+# - 👀 I’m interested in Advance Artificial Intelligence(h3)
+
+
+# - 🌱 I’m currently learning Advance Artificial Intelligence - IBM Academy
+
+
+# - ⚡ Fun fact: Comedi
+
+
+ # Mari terhubung dan berkolaborasi⭐
