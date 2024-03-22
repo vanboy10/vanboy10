@@ -1,9 +1,9 @@
-# - 👋  Hi, I’m vanboy
+#  Hi, I’m vanboy😎
 
-#  👀 I’m interested in Advance Artificial Intelligence
+#  I’m interested in Advance Artificial Intelligence💢
 
-#  🌱 I’m currently learning Advance Artificial Intelligence - IBM Academy
+#   I’m currently learning Advance Artificial Intelligence - IBM Academy🤖
 
-# ⚡ Fun fact: Comedi
+#  Fun fact: comedy😂
 
 # Let's connect and collaborate⭐
